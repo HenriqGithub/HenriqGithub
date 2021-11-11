@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @HenriqGithub
-- 👀 I’m interested in code
+- 👀 I’m interested in work with coding
 - 🌱 I’m currently learning program
 - 💞️ I’m looking to collaborate on projects and encodings
 - 📫 How to reach me send an email: megacelllenovo2@gmail.com
